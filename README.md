@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PlutWasTaken
+- 👀 I’m interested in Games And Coding
+- 🌱 I’m currently learning Python And Stuff
+- 🩸 I Got YT Channel https://www.youtube.com/channel/UCI3LRhH52NUYjLPS9U_vgVA
